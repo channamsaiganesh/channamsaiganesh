@@ -1,5 +1,4 @@
-## Hi there 👋
-# Ch-Sai-Ganesh
+## Hi, I'm Ch-Sai-Ganesh👋
 # 💫 About Me:
 Aspiring Data Analyst with hands-on experience in SQL, Excel, and Power BI. Skilled in data cleaning, analysis, and visualization. Passionate about turning data into insights and eager to start my professional journey in a data-driven role.
 
