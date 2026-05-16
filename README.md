@@ -4,7 +4,7 @@
 
 📧 **Email:** ganeshsai017@gmail.com  
 📞 **Phone:** +91 7032662606  
-🔗 **LinkedIn:** [https://linkedin.com/in/Channam sai ganesh]
+🔗 **LinkedIn:** [https://www.linkedin.com/in/channam-sai-ganesh-356092350/]
 
 
 ---
